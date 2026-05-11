@@ -1,4 +1,4 @@
-
+premium Tool for Bartender for macOS - OCR-support and custom-actions offers the most advanced Bartender for macOS tool, with OCR-support and custom-actions. Ideal for macOS power
 
 
 
